@@ -26,16 +26,15 @@ Chúng con cậy vì danh Chúa nhân từ, cho {các linh hồn/linh hồn....}
 Lạy Nữ Vương, Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ! chúng con, con cháu E-và ở chốn khách đày kêu đến cùng bà, chúng con ở nơi khóc lóc than thở kêu khẩn bà thương. Hỡi Ôi! Bà là Chủ bầu chúng con, xin ghé mặt thương xem chúng con đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu con lòng Bà gồm phúc lạ Ôi khoan thay, nhân thay, dịu thay, Thánh Maria trọn đời đồng trinh. Amen.
 ### **13. Kinh Tin Kính**
 Tôi tin kính Đức Chúa Trời, là Cha phép tắc vô cùng dựng nên trời đất. Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng tôi, bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Maria Đồng Trinh, chịu nạn đời quan Phongxiô Philatô, chịu đóng đanh trên cây Thánh giá, chết và táng xác, xuống ngục tổ tông, ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết. Tôi tin kính Đức Chúa Thánh Thần. Tôi tin có Hội Thánh hằng có ở khắp thế này, các thánh thông công. Tôi tin phép tha tội. Tôi tin xác loài người ngày sau sống lại. Tôi tin hằng sống vậy. Amen.
-### **14. Lần Hạt**
-### **15. Kinh Trước Khi Xét Mình**
+### **14. Kinh Trước Khi Xét Mình**
 Lạy Chúa là sự sáng linh hồn con, xin soi sáng cho con được biết mọi tội con đã phạm trong ngày hôm nay, hoặc lo, hoặc nói, hoặc làm điều gì lỗi nghĩa cùng Chúa. Con lại xin Chúa vì công nghiệp Đức Chúa Giêsu ban ơn cho con được ăn năn ghét tội, cùng dốc lòng chừa thật. Amen.
-### **16. Kinh Hãy Nhớ**
+### **15. Kinh Hãy Nhớ**
 Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ xưa nay chưa từng nghe có người nào chạy đến cùng Đức Mẹ xin bầu chữa cứu giúp, mà Đức Mẹ từ bỏ chẳng nhận lời. Nhân vì sự ấy, con lấy lòng trông cậy than van chạy đến sấp mình xuống dưới chân Đức Mẹ, là Nữ Đồng Trinh trên hết các kẻ đồng trinh, xin Đức Mẹ đoái đến con, là kẻ tội lỗi. Lạy Mẹ là Mẹ Chúa Cứu Thế, xin chớ bỏ lời con kêu xin, một dủ lòng thương mà nhận lời con cùng. Amen.
-### **17. Kinh Cám Ơn**
+### **16. Kinh Cám Ơn**
 Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ con, chẳng để con không đời đời, mà lại sinh ra con, cho con được làm người, cùng hằng gìn giữ con, hằng che chở con, lại cho Ngôi Hai xuống thế làm người chuộc tội chịu chết trên cây Thánh giá vì con, lại cho con được đạo thánh Đức Chúa Trời, cùng chịu nhiều ơn nhiều phép Hội Thánh nữa, và đã cho phần xác con đêm nay {tối thì đọc: ngày hôm nay} được mọi sự lành, lại cứu lấy con kẻo phải chết tươi ăn năn tội chẳng kịp. Vậy các thánh ở trên nước thiên đàng cám ơn Đức Chúa Trời thể nào, thì con cũng hợp cùng các thánh mà dâng cho Chúa cùng cám ơn như vậy. Amen.
-### **18. Kinh Phó Dâng**
+### **17. Kinh Phó Dâng**
 Lạy Chúa, con xin phó dâng linh hồn và xác con ở tay Chúa, Chúa đã phù hộ con ban ngày, thì xin Chúa cũng gìn giữ con ban đêm, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
-### **19. Kinh Trông Cậy**
+### **18. Kinh Trông Cậy**
 Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng hằng chữa chúng con cho khỏi mọi sự dữ. Amen.
 
 Thưa: Lạy rất thánh Trái Tim Đức Chúa Giêsu.  
@@ -47,11 +46,14 @@ Thưa: Lạy Trái Tim cực Thánh cực tịnh Rất Thánh Đức Bà Maria.
 Thưa: Lạy Ông thánh Giuse là bạn thanh sạch Đức Bà Maria trọn đời đồng trinh.  
 Đáp: Cầu cho chúng con.
 
-Thưa: Các Thánh Tử Vì Đạo nước Việt Nam.  
+Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.  
 Đáp: Cầu cho chúng con.
 
 Thưa: Nữ Vương ban sự bằng an.  
 Đáp: Cầu cho chúng con.
 
-### **20. Làm dấu thánh giá**
+## **19. Lời Nguyện Mẹ Maria**
+Lạy mẹ nhân lành, xin ban cho gia đình chúng con được bình an vào đạo đức sốt sắng (đọc 3 lần)
+### **20. Làm dấu đơn**
 ### **21. Cầu nguyện riêng**
+### **22. Làm dấu thánh giá**
