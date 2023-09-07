@@ -12,10 +12,12 @@ Lạy Chúa , con kính mến Chúa hết lòng hết sức trên hết 
 ### **6. Kinh Ăn Năn Tội**
 Lạy Chúa, Chúa là Đấng trọn tốt trọn lành vô cùng, Chúa đã dựng nên con, và cho Con Chúa ra đời chịu nạn chịu chết vì con, mà con đã cả lòng phản nghịch lỗi nghĩa cùng Chúa, thì con lo buồn đau đớn cùng chê ghét mọi tội con trên hết mọi sự, con dốc lòng chừa cải và nhờ ơn Chúa thì con sẽ tránh xa dịp tội, cùng làm việc đền tội cho xứng. Amen.
 ### **7. Đọc Tin Mừng**
+Kết thưa: Chúng con cầu xin, nhờ đức Chúa Giesu Kito Chúa chúng con.
+Đáp: Amen
 ### **8. Kinh Lạy Cha**
 Lạy Cha chúng con ở trên trời, chúng con nguyện danh Cha cả sáng, Nước Cha trị đến, ý Cha thể hiện dưới đất cũng như trên trời.
 Xin Cha cho chúng con hôm nay lương thực hàng ngày, và tha nợ chúng con như chúng con cũng tha kẻ có nợ chúng con; xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi sự dữ. Amen.
-### **9. Kinh Kính Mừng**
+### **9. Kinh Kính Mừng** (đọc 5 kinh)
 Kính mừng Maria đầy ơn phúc, Đức Chúa Trời ở cùng Bà, Bà có phúc lạ hơn mọi người nữ, và Giêsu Con lòng Bà gồm phúc lạ.
 Thánh Maria Đức Mẹ Chúa Trời, cầu cho chúng con là kẻ có tội, khi nay và trong giờ lâm tử. Amen.
 ### **10. Kinh Sáng Danh**
@@ -46,7 +48,7 @@ Thưa: Lạy Trái Tim cực Thánh cực tịnh Rất Thánh Đức Bà Maria.
 Thưa: Lạy Ông thánh Giuse là bạn thanh sạch Đức Bà Maria trọn đời đồng trinh.  
 Đáp: Cầu cho chúng con.
 
-Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.  
+Thưa: Các Thánh Tử Vì Đạo nước Việt Nam.  
 Đáp: Cầu cho chúng con.
 
 Thưa: Nữ Vương ban sự bằng an.  
