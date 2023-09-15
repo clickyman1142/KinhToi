@@ -37,22 +37,22 @@ Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ c
 ### **17. Kinh Phó Dâng**
 Lạy Chúa, con xin phó dâng linh hồn và xác con ở tay Chúa, Chúa đã phù hộ con ban ngày, thì xin Chúa cũng gìn giữ con ban đêm, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
 ### **18. Kinh Trông Cậy**
-Thưa: Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng.
+Thưa: Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng.\
 Đáp: hằng chữa chúng con cho khỏi mọi sự dữ. Amen.
 
-Thưa: Lạy rất thánh Trái Tim Đức Chúa Giêsu.
+Thưa: Lạy rất thánh Trái Tim Đức Chúa Giêsu.\
 Đáp: Thương xót chúng con.
 
-Thưa: Lạy Trái Tim cực Thánh cực tịnh Rất Thánh Đức Bà Maria.
+Thưa: Lạy Trái Tim cực Thánh cực tịnh Rất Thánh Đức Bà Maria.\
 Đáp: Cầu cho chúng con.
  
-Thưa: Lạy Ông thánh Giuse là bạn thanh sạch Đức Bà Maria trọn đời đồng trinh.
+Thưa: Lạy Ông thánh Giuse là bạn thanh sạch Đức Bà Maria trọn đời đồng trinh.\
 Đáp: Cầu cho chúng con.
 
-Thưa: Nữ Vương ban sự bằng an.
+Thưa: Nữ Vương ban sự bằng an.\
 Đáp: Cầu cho chúng con.
 
-Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.
+Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.\
 Đáp: Cầu cho chúng con.
 
 ### **19. Lời Nguyện Mẹ Maria**
