@@ -38,7 +38,11 @@ Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ 
 Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ con, chẳng để con không đời đời, mà lại sinh ra con, cho con được làm người, cùng hằng gìn giữ con, hằng che chở con, lại cho Ngôi Hai xuống thế làm người chuộc tội chịu chết trên cây Thánh giá vì con, lại cho con được đạo thánh Đức Chúa Trời, cùng chịu nhiều ơn nhiều phép Hội Thánh nữa, và đã cho phần xác con đêm nay {tối thì đọc: ngày hôm nay} được mọi sự lành, lại cứu lấy con kẻo phải chết tươi ăn năn tội chẳng kịp. Vậy các thánh ở trên nước thiên đàng cám ơn Đức Chúa Trời thể nào, thì con cũng hợp cùng các thánh mà dâng cho Chúa cùng cám ơn như vậy. Amen.
 ### **19. Kinh Phó Dâng**
 Lạy Chúa, con xin phó dâng linh hồn và xác con ở tay Chúa, Chúa đã phù hộ con ban ngày, thì xin Chúa cũng gìn giữ con ban đêm, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
-### **19. Kinh Trông Cậy**
+### **20. Kinh Nhật Tụng**
+Lạy Chúa, lúc chúng con còn thức, xin Ngài cứu vớt cho. Khi chúng con đã ngủ, xin Chúa cũng giữ gìn, để cùng thức tỉnh với Đức Kitô và nghỉ ngơi an bình.
+Muôn lại Chúa, giờ đây theo lời Ngài đã hứa, xin để tôi tớ này được an bình ra đi, vì chính mắt con được thấy ơn cứu độ Chúa đã dành sẵn cho muôn dân, đó là ánh sáng soi đường cho dân ngoại, là vinh quang của Israel dân Ngài.
+Vinh danh Chúa Cha và Chúa Con, cùng vinh danh Thánh Thần Thiên Chúa, tự muôn đời và chính hiện nay luôn mãi đến thiên thu vạn đại. Amen.
+### **21. Kinh Trông Cậy**
 Thưa: Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng.\
 Đáp: hằng chữa chúng con cho khỏi mọi sự dữ. Amen.
 
@@ -57,8 +61,8 @@ Thưa: Nữ Vương ban sự bằng an.\
 Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.\
 Đáp: Cầu cho chúng con.
 
-### **20. Lời Nguyện Mẹ Maria**
+### **22. Lời Nguyện Mẹ Maria**
 Lạy mẹ nhân lành, xin ban cho gia đình chúng con được bình an vào đạo đức sốt sắng (đọc 3 lần)
-### **21. Làm dấu đơn**
-### **22. Cầu nguyện riêng**
-### **23. Làm dấu thánh giá**
+### **23. Làm dấu đơn**
+### **24. Cầu nguyện riêng**
+### **25. Làm dấu thánh giá**
