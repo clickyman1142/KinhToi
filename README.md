@@ -46,7 +46,7 @@ Vinh danh Chúa Cha và Chúa Con, cùng vinh danh Thánh Thần Thiên Chúa, t
 ### **21. Xin Vâng**
 Mẹ ơi! đời con dõi bước theo Mẹ, lòng con quyết noi gương Mẹ, xin Mẹ dạy con hai tiếng "Xin vâng". Mẹ ơi! đường đi trăm ngàn gian khó, hiểm nguy dâng tràn đây đó. Xin mẹ dạy con hai tiếng "Xin vâng".
 ĐK: Xin vâng, Mẹ dạy con hai tiếng xin vâng, hôm qua hôm nay và ngày mai xin vâng, Mẹ dạy con hai tiếng xin vâng, hôm nay, tương lai và suốt đời.
-### **21. Kinh Trông Cậy**
+### **22. Kinh Trông Cậy**
 Thưa: Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng.\
 Đáp: hằng chữa chúng con cho khỏi mọi sự dữ. Amen.
 
@@ -65,8 +65,8 @@ Thưa: Nữ Vương ban sự bằng an.\
 Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.\
 Đáp: Cầu cho chúng con.
 
-### **22. Lời Nguyện Mẹ Maria**
+### **23. Lời Nguyện Mẹ Maria**
 Lạy mẹ nhân lành, xin ban cho gia đình chúng con được bình an vào đạo đức sốt sắng (đọc 3 lần)
-### **23. Làm dấu đơn**
-### **24. Cầu nguyện riêng**
-### **25. Làm dấu thánh giá**
+### **24. Làm dấu đơn**
+### **25. Cầu nguyện riêng**
+### **26. Làm dấu thánh giá**
