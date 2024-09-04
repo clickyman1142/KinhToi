@@ -39,9 +39,13 @@ Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ c
 ### **19. Kinh Phó Dâng**
 Lạy Chúa, con xin phó dâng linh hồn và xác con ở tay Chúa, Chúa đã phù hộ con ban ngày, thì xin Chúa cũng gìn giữ con ban đêm, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
 ### **20. Kinh Nhật Tụng**
+Vinh danh Chúa Cha và Chúa Con, cùng vinh danh Thánh Thần Thiên Chúa, tự muôn đời và chính hiện nay luôn mãi đến thiên thu vạn đại. Amen.
 Lạy Chúa, lúc chúng con còn thức, xin Ngài cứu vớt cho. Khi chúng con đã ngủ, xin Chúa cũng giữ gìn, để cùng thức tỉnh với Đức Kitô và nghỉ ngơi an bình.
 Muôn lại Chúa, giờ đây theo lời Ngài đã hứa, xin để tôi tớ này được an bình ra đi, vì chính mắt con được thấy ơn cứu độ Chúa đã dành sẵn cho muôn dân, đó là ánh sáng soi đường cho dân ngoại, là vinh quang của Israel dân Ngài.
 Vinh danh Chúa Cha và Chúa Con, cùng vinh danh Thánh Thần Thiên Chúa, tự muôn đời và chính hiện nay luôn mãi đến thiên thu vạn đại. Amen.
+### **21. Xin Vâng**
+Mẹ ơi! đời con dõi bước theo Mẹ, lòng con quyết noi gương Mẹ, xin Mẹ dạy con hai tiếng "Xin vâng". Mẹ ơi! đường đi trăm ngàn gian khó, hiểm nguy dâng tràn đây đó. Xin mẹ dạy con hai tiếng "Xin vâng".
+ĐK: Xin vâng, Mẹ dạy con hai tiếng xin vâng, hôm qua hôm nay và ngày mai xin vâng, Mẹ dạy con hai tiếng xin vâng, hôm nay, tương lai và suốt đời.
 ### **21. Kinh Trông Cậy**
 Thưa: Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng.\
 Đáp: hằng chữa chúng con cho khỏi mọi sự dữ. Amen.
