@@ -21,7 +21,7 @@ Kết thưa: Chúng con cầu xin, nhờ đức Chúa Giesu Kito Chúa chúng co
 ### **10. Kinh Lạy Cha**
 Lạy Cha chúng con ở trên trời, chúng con nguyện danh Cha cả sáng, Nước Cha trị đến, ý Cha thể hiện dưới đất cũng như trên trời.
 Xin Cha cho chúng con hôm nay lương thực hàng ngày, và tha nợ chúng con như chúng con cũng tha kẻ có nợ chúng con; xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi sự dữ. Amen.
-### **11. Kinh Kính Mừng** (đọc 5 kinh)
+### **11. Kinh Kính Mừng** (đọc 10 kinh)
 Kính mừng Maria đầy ơn phúc, Đức Chúa Trời ở cùng Bà, Bà có phúc lạ hơn mọi người nữ, và Giêsu Con lòng Bà gồm phúc lạ.
 Thánh Maria Đức Mẹ Chúa Trời, cầu cho chúng con là kẻ có tội, khi nay và trong giờ lâm tử. Amen.
 ### **13. Kinh Sáng Danh**
@@ -29,7 +29,7 @@ Sáng danh đức Chúa Cha và Chúa Con và Chúa Thánh Thần, như đã có
 ### **14. Kinh Cậy Vì Danh Chúa**
 Chúng con cậy vì danh Chúa nhân từ, cho {các linh hồn/linh hồn....} được lên chốn nghỉ ngơi. Hằng xem thấy mặt Đức Chúa Trời sáng láng vui vẻ vô cùng. Amen.
 ### **15. Kinh Lạy Nữ Vương**
-Lạy Nữ Vương, Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ! chúng con, con cháu E-và ở chốn khách đày kêu đến cùng bà, chúng con ở nơi khóc lóc than thở kêu khẩn bà thương. Hỡi Ôi! Bà là Chủ bầu chúng con, xin ghé mặt thương xem chúng con đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu con lòng Bà gồm phúc lạ Ôi khoan thay, nhân thay, dịu thay, Thánh Maria trọn đời đồng trinh. Amen.
+Lạy Nữ Vương, Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ! chúng con, con cháu E-và ở chốn khách đày kêu đến cùng bà, chúng con ở nơi khóc lóc than thở kêu khẩn bà thương. Hỡi ôi! Bà là Chủ bầu chúng con, xin ghé mặt thương xem chúng con đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu con lòng Bà gồm phúc lạ Ôi khoan thay, nhân thay, dịu thay, Thánh Maria trọn đời đồng trinh. Amen.
 ### **16. Kinh Tin Kính**
 Tôi tin kính Đức Chúa Trời, là Cha phép tắc vô cùng dựng nên trời đất. Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng tôi, bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Maria Đồng Trinh, chịu nạn đời quan Phongxiô Philatô, chịu đóng đanh trên cây Thánh giá, chết và táng xác, xuống ngục tổ tông, ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết. Tôi tin kính Đức Chúa Thánh Thần. Tôi tin có Hội Thánh hằng có ở khắp thế này, các thánh thông công. Tôi tin phép tha tội. Tôi tin xác loài người ngày sau sống lại. Tôi tin hằng sống vậy. Amen.
 ### **17. Kinh Hãy Nhớ**
@@ -65,8 +65,8 @@ Thưa: Nữ Vương ban sự bằng an.\
 Thưa: Lạy các Thánh Tử Vì Đạo nước Việt Nam.\
 Đáp: Cầu cho chúng con.
 
-### **23. Lời Nguyện Mẹ Maria**
-Lạy mẹ nhân lành, xin ban cho gia đình chúng con được bình an vào đạo đức sốt sắng (đọc 3 lần)
+### **23. Lời Nguyện Mẹ Maria** (đọc 3 lần)
+Lạy mẹ nhân lành, xin ban cho gia đình chúng con được bình an vào đạo đức sốt sắng
 ### **24. Làm dấu đơn**
 ### **25. Cầu nguyện riêng**
 ### **26. Làm dấu thánh giá**
